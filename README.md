@@ -10,3 +10,5 @@ c+h and ships encouraged 💐💐💐 I don't care who it is as long as it's not
 faves are blellowery and asgowery and flowerkaard (or a mix of any) though
 
 feel free to friend request me! 🌻
+
+also sys but that doesnt matter
