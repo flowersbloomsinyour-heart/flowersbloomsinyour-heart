@@ -11,4 +11,4 @@ faves are blellowery and asgowery and flowerkaard (or a mix of any) though
 
 feel free to friend request me! 🌻
 
-also sys but that doesnt matter
+also sys but that doesnt matter (+usage of flowery pony does not immediately mean it is the fictive! I just like being flowery sometimes)
